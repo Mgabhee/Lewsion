@@ -1,4 +1,4 @@
-# Lewsion Tos
+# Proton Antinuke Tos
 
 By using Lewsion means you agree and accept the following terms of service. https://discord.com/terms
 
